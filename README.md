@@ -1,2 +1,0 @@
-# gokhanorhan.github.io
-#sdfsadfasdfsd
